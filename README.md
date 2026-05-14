@@ -12,7 +12,7 @@ This is a completely useless piece of 💩
 
 <br>
 
-> S**t views
+> Views
 ~~Does anyone even use this crap?~~
 
 ![Dynamic views](https://count.kjchmc.cn/get/@hee1310?theme=gelbooru)  
